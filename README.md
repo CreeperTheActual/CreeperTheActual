@@ -1,1 +1,3 @@
-I quit gorilla tag, im at a point where i dont know what content to make here
+I do things on occasion.
+
+I also use Linux.
